@@ -45,7 +45,7 @@ To engage in NSFW Chat AI, you can start by choosing the right platform that sup
 
 Some platforms allow users to customize their AI chatbot’s responses for more adult-themed chats. By selecting certain settings, you can ensure the bot will engage in NSFW AI Chat sessions without limitations.
 
-<a href="https://golove.ai/nsfw-ai-chat">Get started with NSFW AI Chat Now!!</a>
+<a href="https://golove.ai/?ref=gh-golove-ai">Get started with NSFW AI Chat Now!!</a>
 
 <h2>Ready to Chat with NSFW AI Bots?</h2>
 
